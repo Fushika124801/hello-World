@@ -3,4 +3,4 @@ World in shit
 
 Hi people!!
 
-I the big and beutiful MAN.
+I the big and beautiful Man.
